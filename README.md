@@ -1,1 +1,1 @@
-https://shreeganesha99.github.io/Birthday-Wish/
+https://bdaywishbychetank.github.io/
